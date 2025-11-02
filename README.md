@@ -17,7 +17,6 @@ _Verify Skills_ helps you prove your real-world skills (like coding!) through AI
 
 ## 🏗️ Proj…
 
-[23:51, 10/31/2025] +977 980-8845112: # ✅ Skill verifier – Verify Skills, Not Just Words.
 
 Skill Verifier helps you prove your real-world skills (like coding!) through AI analysis Upload your resume, and get a verified skill report—simple, honest, and trusted.
 
